@@ -9,6 +9,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: 
   Email - anoopsidhan777@gmail.com || 
   LinkedIn - https://www.linkedin.com/in/anoop-sidhan-71b1221a6
-- 😄 Pronouns: ...
 - ⚡ A piece of advice: If You are good at something share it with world...
 
