@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: 
   <ol type="a">
   <li>Email - anoopsidhan777@gmail.com</li> 
-  <li>LinkedIn - https://www.linkedin.com/in/anoop-sidhan-71b1221a6</li>
+  <li>LinkedIn - https://www.linkedin.com/in/anoopdev</li>
   </ol>
 - ⚡ A piece of advice: If You are good at something share it with world...
 ### ⚙️ My GitHub Stats
